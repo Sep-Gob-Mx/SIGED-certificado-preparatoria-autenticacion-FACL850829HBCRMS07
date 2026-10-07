@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-FACL850829HBCRMS07
+FACL850829HBCRMS07
